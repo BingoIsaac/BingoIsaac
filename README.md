@@ -1,3 +1,1 @@
 - 👋 Hi, I’m @BingoIsaac
-- 👀 I’m interested in ROBLOX exploiting.
-- 🌱 I’m currently learning more about coding every day.
