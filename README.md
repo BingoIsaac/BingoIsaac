@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Isaac!
-- 💻 I program in HTML, CSS, and some JS and Java.
+- 💻 Die
 - 🥶 Minehut sucks
